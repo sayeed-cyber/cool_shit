@@ -7,7 +7,7 @@ Welcome to **cool_shi**, where I single-handedly turned old tech into a glorifie
 Behold the **Portable Powerhouse**—a creation born from the depths of tech mayhem. Here’s what makes this relic the envy of no one:
 
 - **Cardboard Casings**: Forget plastic; I’m going green with recycled cardboard. Who needs durability when you can have eco-friendly vibes? The plastic laptop body was unceremoniously tossed out. 😂
-- **RAM**: 8 GB—just enough to make Linux do a happy dance. It’s perfect for pretending this relic can handle modern tasks. Who needs more when you can dream about running that nostalgic 2010-era software?
+- **RAM**: 8 GB—just enough to make Linux do a happy dance. It’s perfect for pretending this relic can handle modern tasks. Who needs more when you can dream about running LINUX ❤️‍🔥
 - **Storage**: 1240 GB. Because why not? More space means more room for all your obsolete files and ancient data. You never know when you’ll need to store that old collection of cat videos.
 - **Processor**: A ten-year-old i3. Think of it as the tech equivalent of giving a tricycle a turbo boost. Get ready for underwhelming performance that makes you question life choices.
 - **Custom Cooling System**: Created from a laptop stand and duct tape. This masterpiece will keep your machine “cool” in the most unreliable way possible.
